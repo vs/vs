@@ -18,4 +18,4 @@ Since 2024 I have worked with Divital, a senior-care startup in Germany. I wrote
 
 ## Contact
 
-[linkedin.com/in/vadishev](https://www.linkedin.com/in/vadishev) · semyon.vadishev@gmail.com
+[linkedin.com/in/vadishev](https://www.linkedin.com/in/vadishev) · [twitter.com/vadishev](https://twitter.com/vadishev)
